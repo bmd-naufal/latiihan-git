@@ -1,3 +1,5 @@
+latihan text sebas
 lsatasdnas sdjldsdjb jasdja
 latihan txt sebas
-latihan text sebas
+belajar lagi
+
