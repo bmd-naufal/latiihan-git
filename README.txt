@@ -1,2 +1,3 @@
-latihan txt sebas
 lsatasdnas sdjldsdjb jasdja
+latihan txt sebas
+latihan text sebas
